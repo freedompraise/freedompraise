@@ -1,4 +1,4 @@
-### Meet Praise Freedom Dike. I am a young software developer actively looking for a junior dev role and open source projects to. 
+### Meet Praise Freedom Dike. A software developer and Open Source Enthusiasst. The code is to leave an impact in the sands of time 
 Unfortunately, I do not spend as much time on platforms; most of my time is spent learning and coding and working on projects. 
 This narrative will soon be changed, hopefully, lol.    
 
